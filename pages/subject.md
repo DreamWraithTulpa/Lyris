@@ -1,1 +1,1 @@
-- a part of speech in English, or the owner of an item
+- a part of speech in English, or the owner of an item or recipient of an action?
