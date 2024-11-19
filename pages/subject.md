@@ -1,0 +1,1 @@
+- a part of speech in English, or the owner of an item
