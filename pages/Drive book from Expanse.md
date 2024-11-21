@@ -57,4 +57,44 @@
 - Of course she’d known he was born there. No way to hide it. His words felt like a weak brag now.
 - “A company man,” she said, letting it be a joke between them.
 - “A Martian.” The cart kiosk had half a dozen of the cramped electric devices ready to rent. Solomon pulled out his card and waved it in a figure eight until the reader got good signal and the first cart in line clicked from amber to green. He pulled it out before he realized he really didn’t want to get in.
+- “Do you—” Solomon began, then cleared his throat and tried again. “Would you like to come home with me?”
+- He could see the Sure, why not forming in her brain stem. He could follow it along the short arcing path to her lips. It was close enough to pull at his blood like a moon. And he watched it turn aside at the last moment. When she shook her head, it wasn’t a refusal so much as her trying to clear her mind. But she smiled. She did smile.
+- “Moving a little fast there, Sol.”
+- 3
+- Speed isn’t the problem. Unless he runs into something, velocity is just velocity; he could be weightless going almost the speed of light. It’s the delta vee that’s hurting him. The acceleration. The change. Every second, he’s going sixty-eight meters per second faster than he was the second before. Or more. Maybe more.
+- Only the acceleration isn’t the problem either. Ships have had the power to burn at fifteen or even twenty g since the early chemical rockets. The power is always there. It’s the efficiency necessary to maintain a burn that was missing. Thrust to weight when most of your weight is propellant to give you thrust. And bodies can accelerate at over twenty g for a fraction of a second. It’s the sustain that’s killing him. It’s going for hours.
+- There are emergency shutoffs. If the reactor starts to overheat or the magnetic bottle gets unstable, the drive will shut down. There are all kinds of shutoffs for all kinds of emergencies, but nothing’s going wrong. Everything’s running perfectly. That’s the problem. That’s what’s killing him.
+- There is also a manual cutoff on the control panel. The icon is a big red button. A panic button. If he could touch it, he’d be fine. But he can’t. All the joy is gone now. Instead of elation, there’s only panic and the growing, grinding pain. If he can just reach the controls. Or if something, anything, could just go wrong.
+- Nothing is going wrong. He is struggling to breathe, gasping the way the safety instructors taught him to. He tenses his legs and arms, trying to force the blood through his arteries and veins. If he passes out, he won’t come back, and there is darkness growing at the edges of his vision. If he can’t find a way out, he will die here. In this chair with his hands pinned against him and his hair pulling back his scalp. His hand terminal in his pocket feels like someone driving a dull knife into his hip. He tries to remember how much mass a hand terminal has. He can’t. He fights to breathe.
+- His hand terminal. If he can reach it, if he can pull it out, maybe he can signal to Caitlin. Maybe she can make a remote connection and shut the engines down. The hand laying across his belly presses hard into his viscera, but it’s only centimeters from his pocket. He pushed until his bones creak, and his wrists shifts. The friction of skin against skin tears a little hole in his belly and the blood that comes out races back toward the seat like it was afraid of something, but he does move.
+- He pushes again. A little closer. The blood is a lubricant. The friction is less. His hand moves farther. It takes minutes. His fingernails touch the hardened plastic. He can do this.
+- Power and efficiency, he thinks, and a moment’s pleasure passes through him despite everything. He’s done it. The magic pair.
+- The tendons in his fingers ache, but he pulls the cloth of his pocket aside. He can feel the hand terminal begin to slip free of his pocket, but he can’t lift his head to see it.
+- 4
+- Three years after he met her, Caitlin showed up at the door to his hole at three in the morning, crying, frightened, and sober. It wasn’t the sort of thing Solomon expected from her, and he’d spent a fair amount of time in her company. They’d become lovers almost seven months after they’d met. He called it that. Becoming lovers wasn’t the kind of thing Caitlin said. With her, it was always something crude and a little raunchy. That was who she was. He thought it was a kind of emotional protection that she was never exactly sincere. It was a way to control fear and deny anxieties. And really as long as she still wanted to come share his bed some nights, he was fine with that. And if she hadn’t wanted to anymore, he’d have been disappointed, but he still would have been fine with it. He liked the way she smirked at the world. The confidence she carried herself with, especially when she was faking it. He liked, all in all, who she was. That made everything easier.
+- Twice, her contract had ticked past its automatic renewal dates without her exercising the option to leave. When he’d taken a position with the functional magnetics workgroup, one of the issues he’d considered was whether the extra time he took with it would alienate her. Neither of them had made any sexual or romantic connections with other people at the center. Everyone treated them as if they were each other’s tacit property, and so even though they’d never made any explicit promises, Solomon would have called them de facto monogamists. Certainly he would have felt hurt and betrayed if she’d been sleeping with someone else, and assumed she’d feel the same about him.
+- But sex and companionship, as pleasant as they were, didn’t mean a great deal of vulnerability. So he was surprised.
+- “Did you hear?” she asked. Her voice was ragged and low. Fresh tears ran down her cheeks, and her mouth pulled in and down at the corners.
+- “I don’t think so,” Solomon said, standing back to let her past. His hole was a standard design: a small multipurpose room at the front with enough resources to cook simple meals, a quarter-sized wall monitor, and space for three or four people to sit. Behind it was the bedroom. Behind that, a storage closet and a bathroom. On Mars, the joke went, a man’s hole was his castle where values of castle approached dorm room. She sat heavily on one of the benches, and wrapped her arms around herself. Solomon closed the door. He didn’t know whether to talk to her or hold her or both. He started with holding her. Her tears had a smell to them; salt and damp and skin. She wept into his shoulder until curiosity and distress drove him past the consolation of being her soft monkey. “So. Did I hear what, exactly?”
+- She coughed out a phlegmy laugh.
+- “The United Nations,” she said. “They invoked the breakaway province rule. Their ships have already done their acceleration burns. Forty of them. They’re already ballistic.”
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
 -
