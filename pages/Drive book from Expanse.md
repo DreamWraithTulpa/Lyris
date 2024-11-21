@@ -8,3 +8,17 @@
 - Two minutes later, it drops to point five. Two and a half minutes later, point four. That puts the burn at over thirty-seven hours and the final velocity at something just under five percent of c.
 - Solomon starts getting nervous.
 -
+- 2
+- He met her ten years before. The research center at Dhanbad Nova was one of the largest on Mars. Three generations after the first colonists dug into the rock and soil of humanity’s second home, progress had pushed the envelope of human science, understanding, and culture so far that the underground city could support five bars, even if one of them was the alcohol-free honky-tonk where the Jainists and born-again Christians hung out. The other four sold alcohol and food that was exactly the same as the stuff they sold at the commissary, only with piped-in music and a wall monitor with an entertainment feed from Earth playing on it all hours of the day and night. Solomon and his cadre met up at this one two or three times a week when the work load at the center wasn’t too heavy.
+- Usually the group was some assortment of the same dozen people. Today it was Tori and Raj from the water reclamation project. Voltaire whose real name was Edith. Julio and Carl and Malik who all worked together on anti-cancer therapies. And Solomon. Mars, they said, was the biggest small town in the solar system. There was almost never anyone new.
+- There was someone new. She sat beside Malik, had dark hair and a patient expression. Her face was a little too sharp to be classically beautiful, and the hair on her forearms was dark. She had the kind of genetics that developed a little mustache problem when she hit about thirty-five. Solomon didn’t believe in love at first sight, but as soon as he sat down as the table, he was profoundly aware that he hadn’t brushed his hair very effectively that morning and he was wearing the shirt with the sleeves a little too long.
+- “Mars is America,” Tori said, waving his beer expansively. “It’s exactly the same.”
+- “It’s not America,” Malik said.
+- “Not like it was at the end. Like the beginning. Look at how long it took to travel from Europe to North America in the 1500s. Two months. How long to get here from Earth? Four. Longer if the orbits are right.”
+- “Which is the first way in which it’s not like America,” Malik said, dryly.
+- “It’s within an order of magnitude,” Tori said. “My point is that politically speaking, distance is measured in time. We’re months away from Earth. They’re still thinking about us like we’re some kind of lost colony. Like we answer to them. How many people here, just at this table have had directives from someone who’s never been outside a gravity well but still felt like they should tell us where our research should go?”
+- Tori raised his own hand, and Raj followed suit. Voltaire. Carl. Reluctantly, Malik. Tori’s grin was smug.
+-
+-
+-
+-
